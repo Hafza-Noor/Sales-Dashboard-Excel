@@ -21,5 +21,5 @@
 
 ---
 *Author: Hafza Noor*
-*hafzanoor3106@gmail.com*
+[Email me](hafzanoor3106@gmail.com)
 [LinkedIn:](https://www.linkedin.com/in/hafza-noor-a40ab1236/)
